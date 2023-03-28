@@ -1,5 +1,5 @@
-# أنا سأعمل نائب الرئيس بجد جدا سأفجر
+# 
 
-أنا على وشك النفخ
 
-![image](https://i.kym-cdn.com/entries/icons/original/000/042/513/dreamybull.jpg)
+
+![image](https://images-ext-2.discordapp.net/external/uus3qVHCpZIKVfcyphEIO7cwOK37tQ75e8wSIpcRSD4/https/cdn.upload.systems/uploads/tuR6TBF6.png)
